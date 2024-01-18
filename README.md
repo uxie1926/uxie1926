@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @uxie1926
 - 👀 I’m interested in music!! Writing, producing, mixing, etc <3
-- 🌱 I’m currently learning everything! I have been studing theology and cosmology, but I also love learning sociology and musicology etc etc
+- 🌱 I’m currently learning everything! I have been studying theology and cosmology, but I also love learning sociology and musicology etc etc
 - 💞️ I’m looking to collaborate on music and my discord server <3
 - 📫 How to reach me: through here, discord, or wherever you can find Uxie!
 - 😄 Pronouns: they/them
